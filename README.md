@@ -2,7 +2,7 @@
 - 👀 I’m interested in Pasha Bank
 - 🌱 I’m currently learning Pasha Bank
 - 💞️ I’m looking to collaborate on Pasha Bank
-- 📫 How to reach me: I bet you can't
+- 📫 How to reach me: I already did
 - 😄 Pronouns: E
 - ⚡ Fun fact: Nothing is fun
 
